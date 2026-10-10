@@ -3,7 +3,7 @@
 
 Díaz Torres, Edgard Raúl 
 
-Maydana Sarmiento Jean Piere Alexis Marcial 
+Maydana Sarmiento, Jean Piere Alexis Marcial 
 
 Romero Enriquez, Anghi Cenayda 
 
